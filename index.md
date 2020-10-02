@@ -1,4 +1,4 @@
-## 客制化TU40 40% Keyboard
+## 客制化 40% Keyboard
 
 #### 键盘材料
 
