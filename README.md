@@ -10,17 +10,12 @@ some Notes about creativitive
   客制化小站-TU40板子
   ```
   
-  ![avatar](C:\Users\lare\Desktop\欧贝克\QQ图片20201004143307.png)
-  
 * TCC金粉轴
 
   ```
   TCC正牌科电金粉轴线性轴,三脚，压力克数37g,<原厂樱桃红轴压力克数45g
   
   ```
-
-![avatar](C:\Users\lare\Desktop\欧贝克\ttc金粉轴.jpg)
-
 * 国产卫星轴
 
   ```
@@ -50,12 +45,6 @@ some Notes about creativitive
 
 * 得利硬防割垫
 ```
-
-![avatar](C:\Users\lare\Desktop\欧贝克\IMG_20201001_150110_EDIT_1.jpg)
-
-![avatar](C:\Users\lare\Desktop\欧贝克\QQ图片20201004143841.jpg)
-
-
 
 #### 流程
 
@@ -100,9 +89,3 @@ some Notes about creativitive
 ```
 最终让键盘歇息一晚上，明早再起身敲打确认，完事。
 ```
-
-![avatar](C:\Users\lare\Desktop\欧贝克\IMG_20201001_175734_EDIT_1.jpg)
-
-![avatar](C:\Users\lare\Desktop\欧贝克\IMG_20201001_175957_EDIT_1.jpg)
-
-![avatar](C:\Users\lare\Desktop\欧贝克\IMG_20201002_132441_EDIT_1.jpg)
